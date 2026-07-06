@@ -1,4 +1,4 @@
-# 
+# Profesional RiskGuard script. Descarga e instala con implementación local y descarga rápida — rápido, seguro y fácil de usar.
 
 
 
